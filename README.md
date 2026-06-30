@@ -1,0 +1,2 @@
+# laptopku
+laptop berkualitas
